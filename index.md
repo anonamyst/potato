@@ -105,6 +105,9 @@ There will be a guest room -- now upstairs. There might be two rooms available i
 * Long corduroy sofa: ?
 * Basement hammock: ?
 
+### Monster Palace
+* Guest room: negotiation happening
+
 ### Other Houses
 * Us???
 
